@@ -29,3 +29,5 @@ or 22,164 days
 or 531,936 hours
 or 31,916,160 minutes
 or 1,914,969,600 seconds
+
+<b>1. http://www.quotabelle.com/author/rosalind-franklin</b>
