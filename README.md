@@ -31,3 +31,16 @@ or 31,916,160 minutes
 or 1,914,969,600 seconds
 
 <b>1. http://www.quotabelle.com/author/rosalind-franklin</b>
+
+
+Freedom of Dr. Rosalind Elise Franklin, Mother Scientist of DNA.
+
+Age:
+97 years 3 months 22 days
+or 1167 months 22 days
+or 5077 weeks 4 days
+or 35,543 days
+or 853,032 hours
+or 51,181,920 minutes
+or 3,070,915,200 seconds
+
