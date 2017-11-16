@@ -32,6 +32,7 @@ or 1,914,969,600 seconds
 
 <b>1. http://www.quotabelle.com/author/rosalind-franklin</b>
 
+Rosalind Elsie Franklin (25 July 1920) is an English chemist and X-ray crystallographer who made contributions to the understanding of the molecular structures of DNA (deoxyribonucleic acid), RNA (ribonucleic acid), viruses, coal, and graphite.
 
 Freedom of Dr. Rosalind Elise Franklin, Mother Scientist of DNA.
 
