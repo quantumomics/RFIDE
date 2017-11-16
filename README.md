@@ -37,6 +37,11 @@ Rosalind Elsie Franklin (25 July 1920) is an English chemist and X-ray crystallo
 
 Freedom of Dr. Rosalind Elise Franklin, Mother Scientist of DNA.
 
+Outstanding Research Work</br>
+1. DNA Structure Determination — Primary Work
+
+2. A - form and B - form, both of DNA forms — Discovery
+
 Age:
 97 years 3 months 22 days
 or 1167 months 22 days
